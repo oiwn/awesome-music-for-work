@@ -8,6 +8,7 @@ Chill music and ambient noises to study and work.
 - [The sound of rain in a bedroom with a city night view](https://youtu.be/OFgmRcJRdVM)
 - [Seoul Cityscape - Rain Open WIndow City Sounds in Seoul, South Korea | 4k](https://youtu.be/eXsAyB1nUFg)
 - [It's raining. I'll sleep in the car! - Car Camping](https://youtu.be/qJwPrKtHCv0)
+- [Sleep in the tent on a rainy day](https://youtu.be/-N9rb2QDqrw)
 
 ## Ambience and music
 
@@ -43,3 +44,7 @@ Mixes for background, various genres.
 ### Dub Techno
 
 - [DUB TECHNO Trippy @ Driving into the Dark Space 'Psychedelic Riders' Minimal MIX 2019](https://youtu.be/pdw8IBb24ZM)
+
+### Chill
+
+- [Programming ▫️ Designing ▫️ Hacking ▫️ Coding ▫️ Focus ▫️ Music 🧬](https://youtu.be/hGIW2fDb0jg)
