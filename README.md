@@ -49,3 +49,7 @@ Mixes for background, various genres.
 
 - [Programming ▫️ Designing ▫️ Hacking ▫️ Coding ▫️ Focus ▫️ Music 🧬](https://youtu.be/hGIW2fDb0jg)
 - [Chillstep Music for Programming / Cyber / Coding](https://youtu.be/M5QY2_8704o)
+
+### Synthwave/House/Techno (4x4)
+
+- [Programming / Coding / Hacking music vol.19 (EASY THOUGHTS)](https://youtu.be/0V7X9fa0wco)
