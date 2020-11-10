@@ -63,3 +63,12 @@ Mixes for background, various genres.
 ### Ambient
 
 - [8 Hours of Dark Ambient from Iron Cthulhu Apocalypse (original music, not a curated mix)](https://youtu.be/XBAsKplgkE4)
+- [Nuclear Winter \(Multiple Dark Ambient Hours\)](https://youtu.be/cRzQuPvLjdU)
+
+### Drum'n'Bass (grey area)
+
+- [UVB-76 Music (Singles Mix)](https://youtu.be/eTCxDWVQ3yk)
+
+### Drum'n'Bass
+
+- [METALHEADZ - VINYL ONLY MIX 2017](https://youtu.be/UfVgEown2pM)
