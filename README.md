@@ -1,6 +1,16 @@
-# awesome-music-for-work
+# Awesome music & ambience for working
 
 Chill music and ambient noises to study and work.
+
+# Menu
+
+- [`Real world ambience`](#real-world-ambience)
+- [`Ambience fiction`](#ambience-fiction)
+- [`Ambience and music`](#ambience-and-music)
+- [`Sci-Fi movies and games ambience`](#sci-fi-movies-and-games-ambience)
+- [`Games and movies OSTs`](#games-and-movies-osts)
+- [`Kinda "Radio Stations"`](#kinda-radio-stations)
+- [`Mixes`](#mixes)
 
 
 ## Real world ambience
@@ -15,6 +25,8 @@ Chill music and ambient noises to study and work.
 
 - [ICTORIAN ERA WINTER MANOR AMBIENCE: Relaxing Snowstorm Sounds for Sleeping](https://youtu.be/q6QxqHf_LCA)
 - [Graveyard Chapel - ASMR Ambience](https://youtu.be/4dS3fzJoAQM)
+- [Old Library Sounds | Rain , Thunderstorm and Howling Wind Ambience | 3 Hours](https://youtu.be/7v6a1eT_DQs)
+- [Starship Sleeping Quarters | Sleep Sounds White Noise with Deep Bass 10 Hours](https://youtu.be/gpvznAiKblU)_
 
 ## Ambience and music
 
@@ -34,7 +46,7 @@ Chill music and ambient noises to study and work.
 - [Shadowrun: Dragonfall Director's Cut - Official Soundtrack](https://youtu.be/LhcoP8SnZZo)
 
 
-## Kinda ""Radio Stations"
+## Kinda "Radio Stations"
 
 - [lofi hip hop radio - beats to relax/study to](https://youtu.be/5qap5aO4i9A)
 
@@ -55,7 +67,13 @@ Mixes for background, various genres.
 
 - [Programming ▫️ Designing ▫️ Hacking ▫️ Coding ▫️ Focus ▫️ Music 🧬](https://youtu.be/hGIW2fDb0jg)
 - [Chillstep Music for Programming / Cyber / Coding](https://youtu.be/M5QY2_8704o)
+- [Productive Music — Maximum Efficiency for Programmers, Designers, Creators](https://youtu.be/C4MpzSMkinw)
+
+### Psybient, Psychill etc.
+
 - [Cosmic Flux - Psychill, PsyTrance, Psybient Mix](https://youtu.be/jiwuQ6UHMQg)
+- [Psybient Greatest Anthems All Time Mix (+ Animated 16Bit Sci-Fi Visuals)](https://youtu.be/eqzxBHSKVsQ)
+- [Blade Runner 2049 - Futuristic Psybient, Psychill, Downtempo Mix](https://youtu.be/xAnZwxfI91Q)
 
 ### Synthwave/House/Techno (4x4)
 
