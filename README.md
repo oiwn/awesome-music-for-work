@@ -55,6 +55,7 @@ Mixes for background, various genres.
 
 - [Programming ▫️ Designing ▫️ Hacking ▫️ Coding ▫️ Focus ▫️ Music 🧬](https://youtu.be/hGIW2fDb0jg)
 - [Chillstep Music for Programming / Cyber / Coding](https://youtu.be/M5QY2_8704o)
+- [Cosmic Flux - Psychill, PsyTrance, Psybient Mix](https://youtu.be/jiwuQ6UHMQg)
 
 ### Synthwave/House/Techno (4x4)
 
@@ -72,3 +73,7 @@ Mixes for background, various genres.
 ### Drum'n'Bass
 
 - [METALHEADZ - VINYL ONLY MIX 2017](https://youtu.be/UfVgEown2pM)
+
+### Ethno
+
+- [2 Hours of Celtic Music by Adrian von Ziegler - Part 1](https://youtu.be/jiwuQ6UHMQg)
