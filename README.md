@@ -19,7 +19,7 @@ Chill music and ambient noises to study and work.
 - [Seoul Cityscape - Rain Open WIndow City Sounds in Seoul, South Korea | 4k](https://youtu.be/eXsAyB1nUFg)
 - [It's raining. I'll sleep in the car! - Car Camping](https://youtu.be/qJwPrKtHCv0)
 - [Sleep in the tent on a rainy day](https://youtu.be/-N9rb2QDqrw)
-- [Airliner White Noise in Economy Class · Great for Sleeping · Relaxation · Calm · Reading & Homework](https://youtu.be/off2p1eJtOA)
+- [Airliner White Noise in Economy Class \· Great for Sleeping \· Relaxation \· Calm \· Reading & Homework](https://youtu.be/off2p1eJtOA)
 
 ## Ambience fiction
 
@@ -44,6 +44,7 @@ Chill music and ambient noises to study and work.
 - [Skyrim Exploration Suite](https://youtu.be/xWtfo9kuRTU)
 - [Shadowrun Returns: Hong Kong OST](https://youtu.be/2OqqbesJ-Ks)
 - [Shadowrun: Dragonfall Director's Cut - Official Soundtrack](https://youtu.be/LhcoP8SnZZo)
+- [DUNE Music | Epic Background Theme | Music & Animation](https://youtu.be/3VvWoBfqCQo)
 
 
 ## Kinda "Radio Stations"
@@ -57,7 +58,9 @@ Mixes for background, various genres.
 
 ### Space Rock
 
-- [5 Hours of Relaxing Psychedelic Space Rock - Travel Dos](https://youtu.be/ors0wpcVDcc**
+- [5 Hours of Relaxing Psychedelic Space Rock \- Travel Dos](https://youtu.be/ors0wpcVDcc)
+- [Spaceslug -Lemanis (2016) Full Album](https://youtu.be/p4U6i2yeQ-0)
+- [Psychedelic / Stoner / Desert Rock - Playlist 6 (REUPLOAD)](https://youtu.be/TKBoID6Ez0E)
 
 ### Dub Techno
 
@@ -95,3 +98,11 @@ Mixes for background, various genres.
 ### Ethno
 
 - [2 Hours of Celtic Music by Adrian von Ziegler - Part 1](https://youtu.be/jiwuQ6UHMQg)
+
+### Classic
+
+- [The Russian Guitar 1800-1850](https://youtu.be/dTdPizz7Dic)
+
+### Blues
+
+- [Whiskey Blues | Best of Slow Blues/Rock #1](https://youtu.be/1eNSWZ4x2ZU)
