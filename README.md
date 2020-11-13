@@ -60,6 +60,7 @@ Mixes for background, various genres.
 
 - [5 Hours of Relaxing Psychedelic Space Rock \- Travel Dos](https://youtu.be/ors0wpcVDcc)
 - [Spaceslug -Lemanis (2016) Full Album](https://youtu.be/p4U6i2yeQ-0)
+- [Spaceslug - Time Travel Dilemma (2017 | Full Album)](https://youtu.be/9QcMUyWa5pY)
 - [Psychedelic / Stoner / Desert Rock - Playlist 6 (REUPLOAD)](https://youtu.be/TKBoID6Ez0E)
 
 ### Dub Techno
@@ -74,7 +75,7 @@ Mixes for background, various genres.
 
 ### Psybient, Psychill etc.
 
-- [Cosmic Flux - Psychill, PsyTrance, Psybient Mix](https://youtu.be/jiwuQ6UHMQg)
+- [Cosmic Flux \- Psychill, PsyTrance, Psybient Mix](https://youtu.be/jiwuQ6UHMQg)
 - [Psybient Greatest Anthems All Time Mix (+ Animated 16Bit Sci-Fi Visuals)](https://youtu.be/eqzxBHSKVsQ)
 - [Blade Runner 2049 - Futuristic Psybient, Psychill, Downtempo Mix](https://youtu.be/xAnZwxfI91Q)
 
@@ -84,7 +85,7 @@ Mixes for background, various genres.
 
 ### Ambient
 
-- [8 Hours of Dark Ambient from Iron Cthulhu Apocalypse (original music, not a curated mix)](https://youtu.be/XBAsKplgkE4)
+- [8 Hours of Dark Ambient from Iron Cthulhu Apocalypse \(original music, not a curated mix\)](https://youtu.be/XBAsKplgkE4)
 - [Nuclear Winter \(Multiple Dark Ambient Hours\)](https://youtu.be/cRzQuPvLjdU)
 
 ### Drum'n'Bass (grey area)
@@ -103,6 +104,9 @@ Mixes for background, various genres.
 
 - [The Russian Guitar 1800-1850](https://youtu.be/dTdPizz7Dic)
 - [Classical Music for Reading and Concentration](https://youtu.be/GMhIT4a98UE)
+- [Most Iconic Classical Music Masterpieces Everyone Knows in One Single Video](https://youtu.be/-7jjo8UICjQ)
+- [The Best of Chopin](https://youtu.be/Jn09UdSb3aA)
+
 
 ### Blues
 
