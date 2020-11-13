@@ -102,6 +102,7 @@ Mixes for background, various genres.
 ### Classic
 
 - [The Russian Guitar 1800-1850](https://youtu.be/dTdPizz7Dic)
+- [Classical Music for Reading and Concentration](https://youtu.be/GMhIT4a98UE)
 
 ### Blues
 
