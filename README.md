@@ -87,6 +87,7 @@ Mixes for background, various genres.
 
 - [8 Hours of Dark Ambient from Iron Cthulhu Apocalypse \(original music, not a curated mix\)](https://youtu.be/XBAsKplgkE4)
 - [Nuclear Winter \(Multiple Dark Ambient Hours\)](https://youtu.be/cRzQuPvLjdU)
+- [4 Hours of Ambient Study Music To Concentrate - Improve your Focus and Concentration](https://youtu.be/4GnVDPD01as)
 
 ### Drum'n'Bass (grey area)
 
