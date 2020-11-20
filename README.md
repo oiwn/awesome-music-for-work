@@ -101,6 +101,7 @@ Mixes for background, various genres.
 ### Ethno
 
 - [2 Hours of Celtic Music by Adrian von Ziegler - Part 1](https://youtu.be/jiwuQ6UHMQg)
+- [Relaxing Hang Drum music for Meditation and Yoga](https://youtu.be/K7IbAv6qOlI)
 
 ### Classic
 
