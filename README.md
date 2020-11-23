@@ -82,6 +82,7 @@ Mixes for background, various genres.
 ### Synthwave/House/Techno (4x4)
 
 - [Programming / Coding / Hacking music vol.19 (EASY THOUGHTS)](https://youtu.be/0V7X9fa0wco)
+- [Epicuros - Hoplax - House Anthology Guest Mix part 18 (Deep House, Tech House, Techno)](https://youtu.be/w7L8Or5xWKg)
 
 ### Ambient
 
@@ -97,6 +98,7 @@ Mixes for background, various genres.
 ### Drum'n'Bass
 
 - [METALHEADZ - VINYL ONLY MIX 2017](https://youtu.be/UfVgEown2pM)
+
 
 ### Ethno
 
