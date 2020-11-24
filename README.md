@@ -26,7 +26,9 @@ Chill music and ambient noises to study and work.
 - [ICTORIAN ERA WINTER MANOR AMBIENCE: Relaxing Snowstorm Sounds for Sleeping](https://youtu.be/q6QxqHf_LCA)
 - [Graveyard Chapel - ASMR Ambience](https://youtu.be/4dS3fzJoAQM)
 - [Old Library Sounds | Rain , Thunderstorm and Howling Wind Ambience | 3 Hours](https://youtu.be/7v6a1eT_DQs)
-- [Starship Sleeping Quarters | Sleep Sounds White Noise with Deep Bass 10 Hours](https://youtu.be/gpvznAiKblU)_
+- [Starship Sleeping Quarters | Sleep Sounds White Noise with Deep Bass 10 Hours](https://youtu.be/gpvznAiKblU)
+- [10 hours | CityScape of Mars Base Alpha-1: Ambient Space Music, Sci-Fi, Future World](https://youtu.be/Uj8DYegtrHg)
+
 
 ## Ambience and music
 
@@ -45,6 +47,7 @@ Chill music and ambient noises to study and work.
 - [Shadowrun Returns: Hong Kong OST](https://youtu.be/2OqqbesJ-Ks)
 - [Shadowrun: Dragonfall Director's Cut - Official Soundtrack](https://youtu.be/LhcoP8SnZZo)
 - [DUNE Music | Epic Background Theme | Music & Animation](https://youtu.be/3VvWoBfqCQo)
+- [DOOM Eternal OST Remix (Remastered Soundtrack)](https://youtu.be/aam9VvzFuI0)
 
 
 ## Kinda "Radio Stations"
@@ -111,6 +114,7 @@ Mixes for background, various genres.
 - [Classical Music for Reading and Concentration](https://youtu.be/GMhIT4a98UE)
 - [Most Iconic Classical Music Masterpieces Everyone Knows in One Single Video](https://youtu.be/-7jjo8UICjQ)
 - [The Best of Chopin](https://youtu.be/Jn09UdSb3aA)
+- [Tchaikovsky & Rachmaninoff - Russian Classical Music](https://youtu.be/0-JmHwVMhWM)
 
 
 ### Blues
