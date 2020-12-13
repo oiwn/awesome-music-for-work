@@ -20,6 +20,7 @@ Chill music and ambient noises to study and work.
 - [It's raining. I'll sleep in the car! - Car Camping](https://youtu.be/qJwPrKtHCv0)
 - [Sleep in the tent on a rainy day](https://youtu.be/-N9rb2QDqrw)
 - [Airliner White Noise in Economy Class \· Great for Sleeping \· Relaxation \· Calm \· Reading & Homework](https://youtu.be/off2p1eJtOA)
+- [Forest Rain Sounds - Relaxing Rainforest White Noise with Nature Sounds at Night for Sleeping, Study](https://youtu.be/_X4RV9A3CxM)
 
 ## Ambience fiction
 
@@ -40,6 +41,7 @@ Chill music and ambient noises to study and work.
 - [10 HOURS | SPACESHIP NOSTROMO SOUNDS 🎧 For Studying | Relaxing | Sleeping \(ALIEN ISOLATION Ambience\)](https://youtu.be/Wckh13WthAw)
 - [Blade Runner Meditative Ambience](https://youtu.be/cuCqn07EOKk)
 - [Jeremy Soule (Skyrim) — Tundra + "Winter Ambience" 1.5 Hrs.](https://youtu.be/x7BCa9Y8Of8)
+- [SUBNAUTICA - Full Soundtrack OST - By Simon Chylinski](https://youtu.be/aT9_-P7N950)
 
 ## Games and movies OSTs
 
