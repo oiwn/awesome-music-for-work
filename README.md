@@ -21,6 +21,7 @@ Chill music and ambient noises to study and work.
 - [Sleep in the tent on a rainy day](https://youtu.be/-N9rb2QDqrw)
 - [Airliner White Noise in Economy Class \· Great for Sleeping \· Relaxation \· Calm \· Reading & Homework](https://youtu.be/off2p1eJtOA)
 - [Forest Rain Sounds - Relaxing Rainforest White Noise with Nature Sounds at Night for Sleeping, Study](https://youtu.be/_X4RV9A3CxM)
+- [Sounds of Mountain Rivers and Forest Birds Singing. 12 Hours Of Deep Sleep.](https://youtu.be/LBrFj0dVNb8)
 
 ## Ambience fiction
 
@@ -83,6 +84,7 @@ Mixes for background, various genres.
 - [Cosmic Flux \- Psychill, PsyTrance, Psybient Mix](https://youtu.be/jiwuQ6UHMQg)
 - [Psybient Greatest Anthems All Time Mix (+ Animated 16Bit Sci-Fi Visuals)](https://youtu.be/eqzxBHSKVsQ)
 - [Blade Runner 2049 - Futuristic Psybient, Psychill, Downtempo Mix](https://youtu.be/xAnZwxfI91Q)
+- [Midnight Eyes - Psybient, Psychill, Downtempo Mix](https://youtu.be/3pud7Ns8_TQ)
 
 ### Synthwave/House/Techno (4x4)
 
@@ -103,7 +105,7 @@ Mixes for background, various genres.
 ### Drum'n'Bass
 
 - [METALHEADZ - VINYL ONLY MIX 2017](https://youtu.be/UfVgEown2pM)
-
+- [Ulterior Motive @ Rinse FM - 08.08.2019](https://youtu.be/5aA_PoqkbqI)
 
 ### Ethno
 
@@ -117,6 +119,7 @@ Mixes for background, various genres.
 - [Most Iconic Classical Music Masterpieces Everyone Knows in One Single Video](https://youtu.be/-7jjo8UICjQ)
 - [The Best of Chopin](https://youtu.be/Jn09UdSb3aA)
 - [Tchaikovsky & Rachmaninoff - Russian Classical Music](https://youtu.be/0-JmHwVMhWM)
+- [Russian Classical Music : Mussorgsky, Tchaikovsky, Rachmaninoff, Litvinovsky ...](https://youtu.be/dGxuLfj0uqU)
 
 
 ### Blues
