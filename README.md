@@ -43,6 +43,9 @@ Chill music and ambient noises to study and work.
 - [Blade Runner Meditative Ambience](https://youtu.be/cuCqn07EOKk)
 - [Jeremy Soule (Skyrim) — Tundra + "Winter Ambience" 1.5 Hrs.](https://youtu.be/x7BCa9Y8Of8)
 - [SUBNAUTICA - Full Soundtrack OST - By Simon Chylinski](https://youtu.be/aT9_-P7N950)
+- [Spaceship Ambience Sounds ASMR Star Wars White Noise Sleep](https://youtu.be/Iv368LFjG7U)
+- [Star Trek: TNG Bridge Background Ambience (no conversations) *1 HOUR*](https://youtu.be/dLrfdcz8Ou4)
+- [Star Trek: TNG Warp Core + Ambient Engine Noise for 12 Hours](https://youtu.be/aRk-DQUUlz8)
 
 ## Games and movies OSTs
 
