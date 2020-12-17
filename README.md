@@ -22,6 +22,7 @@ Chill music and ambient noises to study and work.
 - [Airliner White Noise in Economy Class \· Great for Sleeping \· Relaxation \· Calm \· Reading & Homework](https://youtu.be/off2p1eJtOA)
 - [Forest Rain Sounds - Relaxing Rainforest White Noise with Nature Sounds at Night for Sleeping, Study](https://youtu.be/_X4RV9A3CxM)
 - [Sounds of Mountain Rivers and Forest Birds Singing. 12 Hours Of Deep Sleep.](https://youtu.be/LBrFj0dVNb8)
+- [12 hours rain sound on the railroad in forest for meditation, stress relief](https://youtu.be/wynHr6Iisr0)
 
 ## Ambience fiction
 
@@ -114,6 +115,7 @@ Mixes for background, various genres.
 
 - [2 Hours of Celtic Music by Adrian von Ziegler - Part 1](https://youtu.be/jiwuQ6UHMQg)
 - [Relaxing Hang Drum music for Meditation and Yoga](https://youtu.be/K7IbAv6qOlI)
+- [Tibetan Music, Healing Music, Relaxation Music, Chakra, Relaxing Music for Stress Relief, ✿3193C](https://youtu.be/PszSx4HvKAA)
 
 ### Classic
 
