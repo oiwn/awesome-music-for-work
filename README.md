@@ -76,6 +76,7 @@ Mixes for background, various genres.
 ### Dub Techno
 
 - [DUB TECHNO Trippy @ Driving into the Dark Space 'Psychedelic Riders' Minimal MIX 2019](https://youtu.be/pdw8IBb24ZM)
+- [Dub Techno Session #3](https://youtu.be/LABVnXwuAg8)
 
 ### Chill
 
