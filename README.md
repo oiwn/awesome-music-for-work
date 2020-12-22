@@ -55,6 +55,7 @@ Chill music and ambient noises to study and work.
 - [Shadowrun: Dragonfall Director's Cut - Official Soundtrack](https://youtu.be/LhcoP8SnZZo)
 - [DUNE Music | Epic Background Theme | Music & Animation](https://youtu.be/3VvWoBfqCQo)
 - [DOOM Eternal OST Remix (Remastered Soundtrack)](https://youtu.be/aam9VvzFuI0)
+- [Legend of Zelda • FULL Relaxing Music (Rain + Waves + Night)](https://youtu.be/em3tTFx8oD0)
 
 
 ## Kinda "Radio Stations"
