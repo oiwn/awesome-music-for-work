@@ -56,6 +56,7 @@ Chill music and ambient noises to study and work.
 - [DUNE Music | Epic Background Theme | Music & Animation](https://youtu.be/3VvWoBfqCQo)
 - [DOOM Eternal OST Remix (Remastered Soundtrack)](https://youtu.be/aam9VvzFuI0)
 - [Legend of Zelda • FULL Relaxing Music (Rain + Waves + Night)](https://youtu.be/em3tTFx8oD0)
+- [Ori and the Will of the Wisps: FULL Original Soundtrack (60 songs) - Gareth Coker](https://youtu.be/eCbyqm9jcBA)
 
 
 ## Kinda "Radio Stations"
