@@ -80,11 +80,12 @@ Mixes for background, various genres.
 - [DUB TECHNO Trippy @ Driving into the Dark Space 'Psychedelic Riders' Minimal MIX 2019](https://youtu.be/pdw8IBb24ZM)
 - [Dub Techno Session #3](https://youtu.be/LABVnXwuAg8)
 
-### Chill
+### Chill & Lowfi & etc
 
 - [Programming ▫️ Designing ▫️ Hacking ▫️ Coding ▫️ Focus ▫️ Music 🧬](https://youtu.be/hGIW2fDb0jg)
 - [Chillstep Music for Programming / Cyber / Coding](https://youtu.be/M5QY2_8704o)
 - [Productive Music — Maximum Efficiency for Programmers, Designers, Creators](https://youtu.be/C4MpzSMkinw)
+- [3 hour playlist | beats to coding to | lofi, jazz, hiphop](https://youtu.be/0xJxgvJO2Xo)
 
 ### Psybient, Psychill etc.
 
