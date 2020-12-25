@@ -107,6 +107,10 @@ Mixes for background, various genres.
 - [4 Hours of Ambient Study Music To Concentrate - Improve your Focus and Concentration](https://youtu.be/4GnVDPD01as)
 - [Relaxing Sleep Music: Deep Sleeping Music, Fall Asleep, Sweet Dreams, Insomnia ★68](https://youtu.be/MN_JP4gyBNI)
 
+### Modular / Generative Music
+
+- [- Folding Space - Generative Modular Ambient // 4 Hour Relaxation](https://youtu.be/6JeZR13dLLI)
+
 ### Drum'n'Bass (grey area)
 
 - [UVB-76 Music (Singles Mix)](https://youtu.be/eTCxDWVQ3yk)
