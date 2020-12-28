@@ -36,6 +36,7 @@ Chill music and ambient noises to study and work.
 ## Ambience and music
 
 - [Relaxing Music & Campfire - Relaxing Guitar Music, Soothing Music, Calm Music](https://youtu.be/5gBJrZmbGLo)
+- [11 Hours of 4K Winter Wonderland + Calming Hang Drum Music for Relaxation, Stress Relief](https://youtu.be/CUIdMusnugs)
 
 
 ## Sci-Fi movies and games ambience
@@ -57,6 +58,7 @@ Chill music and ambient noises to study and work.
 - [DOOM Eternal OST Remix (Remastered Soundtrack)](https://youtu.be/aam9VvzFuI0)
 - [Legend of Zelda • FULL Relaxing Music (Rain + Waves + Night)](https://youtu.be/em3tTFx8oD0)
 - [Ori and the Will of the Wisps: FULL Original Soundtrack (60 songs) - Gareth Coker](https://youtu.be/eCbyqm9jcBA)
+- [Relaxing Zelda Breath of the Wild Music + Night Ambience Sound ~ Vapidbobcat](https://youtu.be/YGaGVajkUjE)
 
 
 ## Kinda "Radio Stations"
@@ -117,11 +119,6 @@ Mixes for background, various genres.
 - [Implode | Halfstep + Experimental Drum and Bass Mix](https://youtu.be/Ob3p2IWuzyk)
 - [Void 2 | Dark + Experimental Drum and Bass Mix](https://youtu.be/IYR5lNm4RpQ)
 - [Antigen | Dark Halftime Drum & Bass Mix](https://youtu.be/ADuOMECrUEs)
-
-### Drum'n'Bass
-
-- [METALHEADZ - VINYL ONLY MIX 2017](https://youtu.be/UfVgEown2pM)
-- [Ulterior Motive @ Rinse FM - 08.08.2019](https://youtu.be/5aA_PoqkbqI)
 
 ### Ethno
 
