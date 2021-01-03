@@ -31,6 +31,7 @@ Chill music and ambient noises to study and work.
 - [Old Library Sounds | Rain , Thunderstorm and Howling Wind Ambience | 3 Hours](https://youtu.be/7v6a1eT_DQs)
 - [Starship Sleeping Quarters | Sleep Sounds White Noise with Deep Bass 10 Hours](https://youtu.be/gpvznAiKblU)
 - [10 hours | CityScape of Mars Base Alpha-1: Ambient Space Music, Sci-Fi, Future World](https://youtu.be/Uj8DYegtrHg)
+- [Arctica - Annuminas (Extended Edition) Ambient, Drone, Dark Ambient, Field Recordings](https://youtu.be/_VA2PBLiqMg)
 
 
 ## Ambience and music
@@ -102,6 +103,7 @@ Mixes for background, various genres.
 
 - [Programming / Coding / Hacking music vol.19 (EASY THOUGHTS)](https://youtu.be/0V7X9fa0wco)
 - [Epicuros - Hoplax - House Anthology Guest Mix part 18 (Deep House, Tech House, Techno)](https://youtu.be/w7L8Or5xWKg)
+- [Melodic Techno mix 2019 (Joachim Pastor, Reinier Zonneveld, Nils Andreas...)](https://youtu.be/OvSTvtofbqI)
 
 ### Ambient
 
