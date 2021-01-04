@@ -92,6 +92,7 @@ Mixes for background, various genres.
 - [Productive Music — Maximum Efficiency for Programmers, Designers, Creators](https://youtu.be/C4MpzSMkinw)
 - [3 hour playlist | beats to coding to | lofi, jazz, hiphop](https://youtu.be/0xJxgvJO2Xo)
 - [2 Hours Of Squid To Relax/Study/Work To | Lofi Hip Hop | Monterey Bay Aquarium Krill Waves Radio](https://youtu.be/J2UyOTS3UCE)
+- [COSMIC RELAXATION: 8 HOURS of 4K Deep Space NASA Footage + Chillout Music for Studying, Working, Etc](https://youtu.be/Y_plhk1FUQA)
 
 ### Psybient, Psychill etc.
 
