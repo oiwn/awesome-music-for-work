@@ -91,6 +91,7 @@ Mixes for background, various genres.
 - [Chillstep Music for Programming / Cyber / Coding](https://youtu.be/M5QY2_8704o)
 - [Productive Music — Maximum Efficiency for Programmers, Designers, Creators](https://youtu.be/C4MpzSMkinw)
 - [3 hour playlist | beats to coding to | lofi, jazz, hiphop](https://youtu.be/0xJxgvJO2Xo)
+- [2 Hours Of Squid To Relax/Study/Work To | Lofi Hip Hop | Monterey Bay Aquarium Krill Waves Radio](https://youtu.be/J2UyOTS3UCE)
 
 ### Psybient, Psychill etc.
 
