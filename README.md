@@ -139,6 +139,7 @@ Mixes for background, various genres.
 - [Russian Classical Music : Mussorgsky, Tchaikovsky, Rachmaninoff, Litvinovsky ...](https://youtu.be/dGxuLfj0uqU)
 
 
-### Blues
+### Blues & Jazz & etc
 
 - [Whiskey Blues | Best of Slow Blues/Rock #1](https://youtu.be/1eNSWZ4x2ZU)
+- [Best of Acid Jazz and Funky Grooves](https://youtu.be/QK2mtWjtyDU)
