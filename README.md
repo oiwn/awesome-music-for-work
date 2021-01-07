@@ -38,6 +38,7 @@ Chill music and ambient noises to study and work.
 
 - [Relaxing Music & Campfire - Relaxing Guitar Music, Soothing Music, Calm Music](https://youtu.be/5gBJrZmbGLo)
 - [11 Hours of 4K Winter Wonderland + Calming Hang Drum Music for Relaxation, Stress Relief](https://youtu.be/CUIdMusnugs)
+- [Cozy Coffee Shop Ambience with Relaxing Jazz Music and Rain Sounds, Rainy Night & Smooth Jazz Music](https://youtu.be/Pfm8M3q-4TY)
 
 
 ## Sci-Fi movies and games ambience
