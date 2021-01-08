@@ -61,6 +61,7 @@ Chill music and ambient noises to study and work.
 - [Legend of Zelda • FULL Relaxing Music (Rain + Waves + Night)](https://youtu.be/em3tTFx8oD0)
 - [Ori and the Will of the Wisps: FULL Original Soundtrack (60 songs) - Gareth Coker](https://youtu.be/eCbyqm9jcBA)
 - [Relaxing Zelda Breath of the Wild Music + Night Ambience Sound ~ Vapidbobcat](https://youtu.be/YGaGVajkUjE)
+- [Moria | Lord of the Rings Music & Ambience - Dwarven Music with Cavern Ambience](https://youtu.be/Or2QHt7BEgI)
 
 
 ## Kinda "Radio Stations"
@@ -101,6 +102,7 @@ Mixes for background, various genres.
 - [Psybient Greatest Anthems All Time Mix (+ Animated 16Bit Sci-Fi Visuals)](https://youtu.be/eqzxBHSKVsQ)
 - [Blade Runner 2049 - Futuristic Psybient, Psychill, Downtempo Mix](https://youtu.be/xAnZwxfI91Q)
 - [Midnight Eyes - Psybient, Psychill, Downtempo Mix](https://youtu.be/3pud7Ns8_TQ)
+- [Productivity Music — Maximum Efficiency for Creators, Programmers, Designers](https://youtu.be/C4MpzSMkinw)
 
 ### Synthwave/House/Techno (4x4)
 
