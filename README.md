@@ -102,7 +102,6 @@ Mixes for background, various genres.
 - [Psybient Greatest Anthems All Time Mix (+ Animated 16Bit Sci-Fi Visuals)](https://youtu.be/eqzxBHSKVsQ)
 - [Blade Runner 2049 - Futuristic Psybient, Psychill, Downtempo Mix](https://youtu.be/xAnZwxfI91Q)
 - [Midnight Eyes - Psybient, Psychill, Downtempo Mix](https://youtu.be/3pud7Ns8_TQ)
-- [Productivity Music — Maximum Efficiency for Creators, Programmers, Designers](https://youtu.be/C4MpzSMkinw)
 
 ### Synthwave/House/Techno (4x4)
 
