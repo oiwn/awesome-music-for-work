@@ -23,6 +23,7 @@ Chill music and ambient noises to study and work.
 - [Forest Rain Sounds - Relaxing Rainforest White Noise with Nature Sounds at Night for Sleeping, Study](https://youtu.be/_X4RV9A3CxM)
 - [Sounds of Mountain Rivers and Forest Birds Singing. 12 Hours Of Deep Sleep.](https://youtu.be/LBrFj0dVNb8)
 - [12 hours rain sound on the railroad in forest for meditation, stress relief](https://youtu.be/wynHr6Iisr0)
+- [Sea Forests: 10 Hours of Relaxing Oceanscapes | BBC Earth](https://youtu.be/PC1XCR8r8sY)
 
 ## Ambience fiction
 
@@ -102,12 +103,14 @@ Mixes for background, various genres.
 - [Psybient Greatest Anthems All Time Mix (+ Animated 16Bit Sci-Fi Visuals)](https://youtu.be/eqzxBHSKVsQ)
 - [Blade Runner 2049 - Futuristic Psybient, Psychill, Downtempo Mix](https://youtu.be/xAnZwxfI91Q)
 - [Midnight Eyes - Psybient, Psychill, Downtempo Mix](https://youtu.be/3pud7Ns8_TQ)
+- [Carbon Based Lifeforms - Interloper (Full Album - 2015 Remaster)](https://youtu.be/-9pgIVcB3rk)
 
 ### Synthwave/House/Techno (4x4)
 
 - [Programming / Coding / Hacking music vol.19 (EASY THOUGHTS)](https://youtu.be/0V7X9fa0wco)
 - [Epicuros - Hoplax - House Anthology Guest Mix part 18 (Deep House, Tech House, Techno)](https://youtu.be/w7L8Or5xWKg)
 - [Melodic Techno mix 2019 (Joachim Pastor, Reinier Zonneveld, Nils Andreas...)](https://youtu.be/OvSTvtofbqI)
+- [1 Hour Of Melancholic Sovietwave - The 3rd flight of Yuri Gagarin](https://youtu.be/hUrkbwl0Po4)
 
 ### Ambient
 
