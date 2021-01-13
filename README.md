@@ -112,6 +112,7 @@ Mixes for background, various genres.
 - [Epicuros - Hoplax - House Anthology Guest Mix part 18 (Deep House, Tech House, Techno)](https://youtu.be/w7L8Or5xWKg)
 - [Melodic Techno mix 2019 (Joachim Pastor, Reinier Zonneveld, Nils Andreas...)](https://youtu.be/OvSTvtofbqI)
 - [1 Hour Of Melancholic Sovietwave - The 3rd flight of Yuri Gagarin](https://youtu.be/hUrkbwl0Po4)
+- [LoFi House Mix 1988 | The Stoner House Edition by @Katarakt](https://youtu.be/mlUMgZGFCtw)
 
 ### Ambient
 
