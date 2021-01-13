@@ -63,6 +63,7 @@ Chill music and ambient noises to study and work.
 - [Ori and the Will of the Wisps: FULL Original Soundtrack (60 songs) - Gareth Coker](https://youtu.be/eCbyqm9jcBA)
 - [Relaxing Zelda Breath of the Wild Music + Night Ambience Sound ~ Vapidbobcat](https://youtu.be/YGaGVajkUjE)
 - [Moria | Lord of the Rings Music & Ambience - Dwarven Music with Cavern Ambience](https://youtu.be/Or2QHt7BEgI)
+- [3 hours of Prophecy Theme from DUNE (1984) Soundtrack, Relaxing Sleep Sound](https://youtu.be/3qsUvCmA7PI)
 
 
 ## Kinda "Radio Stations"
