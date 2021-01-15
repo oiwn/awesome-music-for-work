@@ -106,6 +106,7 @@ Mixes for background, various genres.
 - [Midnight Eyes - Psybient, Psychill, Downtempo Mix](https://youtu.be/3pud7Ns8_TQ)
 - [Carbon Based Lifeforms - Interloper (Full Album - 2015 Remaster)](https://youtu.be/-9pgIVcB3rk)
 - [Carbon Based Lifeforms - World Of Sleepers | Full Album](https://youtu.be/KQE29az48gM)
+- [ૐ Psytrance Mix March 2018 - Astrix, Liquid Soul, Coming Soon, Waio, Berg, Vibe Tribe](https://youtu.be/mmA5fekq8yQ)
 
 ### Synthwave/House/Techno (4x4)
 
