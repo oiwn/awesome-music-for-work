@@ -64,6 +64,8 @@ Chill music and ambient noises to study and work.
 - [Relaxing Zelda Breath of the Wild Music + Night Ambience Sound ~ Vapidbobcat](https://youtu.be/YGaGVajkUjE)
 - [Moria | Lord of the Rings Music & Ambience - Dwarven Music with Cavern Ambience](https://youtu.be/Or2QHt7BEgI)
 - [3 hours of Prophecy Theme from DUNE (1984) Soundtrack, Relaxing Sleep Sound](https://youtu.be/3qsUvCmA7PI)
+- [Stargate (the Movie) Official Soundtrack (1994)](https://youtu.be/QZ6hQW-tfmU)
+- [Vangelis - Blade Runner Soundtrack (Remastered 2017)](https://youtu.be/k3fz6CC45ok)
 
 
 ## Kinda "Radio Stations"
@@ -107,6 +109,7 @@ Mixes for background, various genres.
 - [Carbon Based Lifeforms - Interloper (Full Album - 2015 Remaster)](https://youtu.be/-9pgIVcB3rk)
 - [Carbon Based Lifeforms - World Of Sleepers | Full Album](https://youtu.be/KQE29az48gM)
 - [ૐ Psytrance Mix March 2018 - Astrix, Liquid Soul, Coming Soon, Waio, Berg, Vibe Tribe](https://youtu.be/mmA5fekq8yQ)
+- [Shaman's Haze (hindu-arab dubs,downtempo,psychill)](https://youtu.be/PmKe5NDVtLo)
 
 ### Synthwave/House/Techno (4x4)
 
@@ -123,6 +126,8 @@ Mixes for background, various genres.
 - [Nuclear Winter \(Multiple Dark Ambient Hours\)](https://youtu.be/cRzQuPvLjdU)
 - [4 Hours of Ambient Study Music To Concentrate - Improve your Focus and Concentration](https://youtu.be/4GnVDPD01as)
 - [Relaxing Sleep Music: Deep Sleeping Music, Fall Asleep, Sweet Dreams, Insomnia ★68](https://youtu.be/MN_JP4gyBNI)
+- [Chillwave Ambient Fantasy Music - Beyond Atmospheric - Relaxing LOTR & Blade Runner Inspired Music](https://youtu.be/V89GXivoXPc)
+- [https://www.youtube.com/watch?v=uUE7ZiMcf94](https://youtu.be/uUE7ZiMcf94)
 
 ### Modular / Generative Music
 
