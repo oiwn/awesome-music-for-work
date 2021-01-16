@@ -115,6 +115,7 @@ Mixes for background, various genres.
 - [Melodic Techno mix 2019 (Joachim Pastor, Reinier Zonneveld, Nils Andreas...)](https://youtu.be/OvSTvtofbqI)
 - [1 Hour Of Melancholic Sovietwave - The 3rd flight of Yuri Gagarin](https://youtu.be/hUrkbwl0Po4)
 - [LoFi House Mix 1988 | The Stoner House Edition by @Katarakt](https://youtu.be/mlUMgZGFCtw)
+- [Techno 2077 (Innovative / Futuristic Techno Mix With Fully Animated Dystopian Visuals)](https://youtu.be/DJWtrLhUxG8)
 
 ### Ambient
 
