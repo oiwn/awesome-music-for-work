@@ -33,6 +33,7 @@ Chill music and ambient noises to study and work.
 - [Starship Sleeping Quarters | Sleep Sounds White Noise with Deep Bass 10 Hours](https://youtu.be/gpvznAiKblU)
 - [10 hours | CityScape of Mars Base Alpha-1: Ambient Space Music, Sci-Fi, Future World](https://youtu.be/Uj8DYegtrHg)
 - [Arctica - Annuminas (Extended Edition) Ambient, Drone, Dark Ambient, Field Recordings](https://youtu.be/_VA2PBLiqMg)
+- [ASMR Blade Runner Balcony Cyberpunk City Rain Sound Ambience 7 Hours 4K -Corona Quarantaine Survival](https://youtu.be/x5zX1eRKEDM)
 
 
 ## Ambience and music
@@ -110,6 +111,7 @@ Mixes for background, various genres.
 - [Carbon Based Lifeforms - World Of Sleepers | Full Album](https://youtu.be/KQE29az48gM)
 - [ૐ Psytrance Mix March 2018 - Astrix, Liquid Soul, Coming Soon, Waio, Berg, Vibe Tribe](https://youtu.be/mmA5fekq8yQ)
 - [Shaman's Haze (hindu-arab dubs,downtempo,psychill)](https://youtu.be/PmKe5NDVtLo)
+- [Singularity - Mix (Psybient - Chillwave with animated cyberpunk art)](https://youtu.be/6AkLn7kM8uw)
 
 ### Synthwave/House/Techno (4x4)
 
