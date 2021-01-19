@@ -47,6 +47,7 @@ Chill music and ambient noises to study and work.
 
 - [10 HOURS | SPACESHIP NOSTROMO SOUNDS 🎧 For Studying | Relaxing | Sleeping \(ALIEN ISOLATION Ambience\)](https://youtu.be/Wckh13WthAw)
 - [Blade Runner Meditative Ambience](https://youtu.be/cuCqn07EOKk)
+- [Blade Runner Meditative Ambience with City Sounds](https://youtu.be/MyitVNMFApc)
 - [Jeremy Soule (Skyrim) — Tundra + "Winter Ambience" 1.5 Hrs.](https://youtu.be/x7BCa9Y8Of8)
 - [SUBNAUTICA - Full Soundtrack OST - By Simon Chylinski](https://youtu.be/aT9_-P7N950)
 - [Spaceship Ambience Sounds ASMR Star Wars White Noise Sleep](https://youtu.be/Iv368LFjG7U)
@@ -67,6 +68,8 @@ Chill music and ambient noises to study and work.
 - [3 hours of Prophecy Theme from DUNE (1984) Soundtrack, Relaxing Sleep Sound](https://youtu.be/3qsUvCmA7PI)
 - [Stargate (the Movie) Official Soundtrack (1994)](https://youtu.be/QZ6hQW-tfmU)
 - [Vangelis - Blade Runner Soundtrack (Remastered 2017)](https://youtu.be/k3fz6CC45ok)
+- [Alien: Isolation | Full Soundtrack](https://youtu.be/URG11U69KS8)
+- [Diablo Theme Tristram Music 10 HOURS](https://youtu.be/iFOfSlDCwYw)
 
 
 ## Kinda "Radio Stations"
@@ -121,6 +124,7 @@ Mixes for background, various genres.
 - [1 Hour Of Melancholic Sovietwave - The 3rd flight of Yuri Gagarin](https://youtu.be/hUrkbwl0Po4)
 - [LoFi House Mix 1988 | The Stoner House Edition by @Katarakt](https://youtu.be/mlUMgZGFCtw)
 - [Techno 2077 (Innovative / Futuristic Techno Mix With Fully Animated Dystopian Visuals)](https://youtu.be/DJWtrLhUxG8)
+- [Cyber Spirit — Future Garage Playlist — Soul Freedom Music](https://youtu.be/OlWomZbCW6I)
 
 ### Ambient
 
