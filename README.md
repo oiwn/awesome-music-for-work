@@ -115,6 +115,7 @@ Mixes for background, various genres.
 - [ૐ Psytrance Mix March 2018 - Astrix, Liquid Soul, Coming Soon, Waio, Berg, Vibe Tribe](https://youtu.be/mmA5fekq8yQ)
 - [Shaman's Haze (hindu-arab dubs,downtempo,psychill)](https://youtu.be/PmKe5NDVtLo)
 - [Singularity - Mix (Psybient - Chillwave with animated cyberpunk art)](https://youtu.be/6AkLn7kM8uw)
+- [Programming ▫️ Designing ▫️ Coding ▫️ Music 📈](https://youtu.be/dDI8jLlc5WE)
 
 ### Synthwave/House/Techno (4x4)
 
