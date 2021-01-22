@@ -135,7 +135,8 @@ Mixes for background, various genres.
 - [4 Hours of Ambient Study Music To Concentrate - Improve your Focus and Concentration](https://youtu.be/4GnVDPD01as)
 - [Relaxing Sleep Music: Deep Sleeping Music, Fall Asleep, Sweet Dreams, Insomnia ★68](https://youtu.be/MN_JP4gyBNI)
 - [Chillwave Ambient Fantasy Music - Beyond Atmospheric - Relaxing LOTR & Blade Runner Inspired Music](https://youtu.be/V89GXivoXPc)
-- [https://www.youtube.com/watch?v=uUE7ZiMcf94](https://youtu.be/uUE7ZiMcf94)
+- [Lauge - Nothingness (Ambient) [Full Mixed Album]](https://youtu.be/uUE7ZiMcf94)
+- ['Cyclical Space' Ambient Performance (DAW + Eurorack)](https://youtu.be/DD75XXVfCjo)
 
 ### Modular / Generative Music
 
