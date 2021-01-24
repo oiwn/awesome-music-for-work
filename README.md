@@ -24,6 +24,8 @@ Chill music and ambient noises to study and work.
 - [Sounds of Mountain Rivers and Forest Birds Singing. 12 Hours Of Deep Sleep.](https://youtu.be/LBrFj0dVNb8)
 - [12 hours rain sound on the railroad in forest for meditation, stress relief](https://youtu.be/wynHr6Iisr0)
 - [Sea Forests: 10 Hours of Relaxing Oceanscapes | BBC Earth](https://youtu.be/PC1XCR8r8sY)
+- [8 Hours Nature Sounds-Waterfall-Relaxing Meditation W/O Birdsong-Calming-Water Falling Sound Effect](https://youtu.be/02NQkhbjALg)
+- [Relaxing Waterfall Sounds for Sleep | Fall Asleep & Stay Sleeping with Water White Noise | 10 Hours](https://youtu.be/HchoJcYNYlU)
 
 ## Ambience fiction
 
