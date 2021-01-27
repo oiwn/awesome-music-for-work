@@ -35,7 +35,8 @@ Chill music and ambient noises to study and work.
 - [Starship Sleeping Quarters | Sleep Sounds White Noise with Deep Bass 10 Hours](https://youtu.be/gpvznAiKblU)
 - [10 hours | CityScape of Mars Base Alpha-1: Ambient Space Music, Sci-Fi, Future World](https://youtu.be/Uj8DYegtrHg)
 - [Arctica - Annuminas (Extended Edition) Ambient, Drone, Dark Ambient, Field Recordings](https://youtu.be/_VA2PBLiqMg)
-- [ASMR Blade Runner Balcony Cyberpunk City Rain Sound Ambience 7 Hours 4K -Corona Quarantaine Survival](https://youtu.be/x5zX1eRKEDM)
+- [ASMR Blade Runner Balcony Cyberpunk City Rain Sound Ambience 7 Hours 4K - Corona Quarantaine Survival](https://youtu.be/x5zX1eRKEDM)
+- [ASMR Cyberpunk Future City Hacker Room Sound Ambience 7 Hours 4K - Corona Quarantaine Survival](https://youtu.be/yp7Mqp-X2wk)
 
 
 ## Ambience and music
@@ -72,11 +73,13 @@ Chill music and ambient noises to study and work.
 - [Vangelis - Blade Runner Soundtrack (Remastered 2017)](https://youtu.be/k3fz6CC45ok)
 - [Alien: Isolation | Full Soundtrack](https://youtu.be/URG11U69KS8)
 - [Diablo Theme Tristram Music 10 HOURS](https://youtu.be/iFOfSlDCwYw)
+- [Creative Music vol 01 - Dwarves of the First Age](https://youtu.be/GNwv4cH-i5k)
 
 
 ## Kinda "Radio Stations"
 
 - [lofi hip hop radio - beats to relax/study to](https://youtu.be/5qap5aO4i9A)
+- [Coding in Chicago | 🎧 LoFi Jazz Hip-Hop Code - Relax - Study](https://youtu.be/esX7SFtEjHg)
 
 
 ## Mixes
