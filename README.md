@@ -74,6 +74,7 @@ Chill music and ambient noises to study and work.
 - [Alien: Isolation | Full Soundtrack](https://youtu.be/URG11U69KS8)
 - [Diablo Theme Tristram Music 10 HOURS](https://youtu.be/iFOfSlDCwYw)
 - [Creative Music vol 01 - Dwarves of the First Age](https://youtu.be/GNwv4cH-i5k)
+- [Ambient Space Music - Alien](https://youtu.be/u9a1EQS_9Wo)
 
 
 ## Kinda "Radio Stations"
