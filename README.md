@@ -162,6 +162,7 @@ Mixes for background, various genres.
 - [Relaxing Hang Drum music for Meditation and Yoga](https://youtu.be/K7IbAv6qOlI)
 - [Tibetan Music, Healing Music, Relaxation Music, Chakra, Relaxing Music for Stress Relief, ✿3193C](https://youtu.be/PszSx4HvKAA)
 - [Relaxing Hang Drum Mix | Positive energy | ♬089](https://youtu.be/t9hpS3HbpDc)
+- [Nordic Folk Music - Viking Storm | Viking, Germanic, Slavic](https://youtu.be/sCN9sWuNJkk)
 
 ### Classic
 
