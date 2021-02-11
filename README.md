@@ -26,6 +26,7 @@ Chill music and ambient noises to study and work.
 - [Sea Forests: 10 Hours of Relaxing Oceanscapes | BBC Earth](https://youtu.be/PC1XCR8r8sY)
 - [8 Hours Nature Sounds-Waterfall-Relaxing Meditation W/O Birdsong-Calming-Water Falling Sound Effect](https://youtu.be/02NQkhbjALg)
 - [Relaxing Waterfall Sounds for Sleep | Fall Asleep & Stay Sleeping with Water White Noise | 10 Hours](https://youtu.be/HchoJcYNYlU)
+- [❄ Relaxing Sounds of an Oil platform in the Arctic Ocean with Wind, Water & Snow Falling Ambience](https://youtu.be/LHJiEJcP-mc)
 
 ## Ambience fiction
 
@@ -37,6 +38,7 @@ Chill music and ambient noises to study and work.
 - [Arctica - Annuminas (Extended Edition) Ambient, Drone, Dark Ambient, Field Recordings](https://youtu.be/_VA2PBLiqMg)
 - [ASMR Blade Runner Balcony Cyberpunk City Rain Sound Ambience 7 Hours 4K - Corona Quarantaine Survival](https://youtu.be/x5zX1eRKEDM)
 - [ASMR Cyberpunk Future City Hacker Room Sound Ambience 7 Hours 4K - Corona Quarantaine Survival](https://youtu.be/yp7Mqp-X2wk)
+- [Nostromo Ambient Engine Noise ( Ship from Alien for 6 Hours )](https://youtu.be/_AmQbNItyko)
 
 
 ## Ambience and music
@@ -44,6 +46,7 @@ Chill music and ambient noises to study and work.
 - [Relaxing Music & Campfire - Relaxing Guitar Music, Soothing Music, Calm Music](https://youtu.be/5gBJrZmbGLo)
 - [11 Hours of 4K Winter Wonderland + Calming Hang Drum Music for Relaxation, Stress Relief](https://youtu.be/CUIdMusnugs)
 - [Cozy Coffee Shop Ambience with Relaxing Jazz Music and Rain Sounds, Rainy Night & Smooth Jazz Music](https://youtu.be/Pfm8M3q-4TY)
+- [Ghost in the Shell Nightstalker - 10 hours](https://youtu.be/vXcDTVqEWSg)
 
 
 ## Sci-Fi movies and games ambience
