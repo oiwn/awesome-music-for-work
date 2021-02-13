@@ -47,6 +47,7 @@ Chill music and ambient noises to study and work.
 - [11 Hours of 4K Winter Wonderland + Calming Hang Drum Music for Relaxation, Stress Relief](https://youtu.be/CUIdMusnugs)
 - [Cozy Coffee Shop Ambience with Relaxing Jazz Music and Rain Sounds, Rainy Night & Smooth Jazz Music](https://youtu.be/Pfm8M3q-4TY)
 - [Ghost in the Shell Nightstalker - 10 hours](https://youtu.be/vXcDTVqEWSg)
+- [Music for Deep Focus and Concentration with Binaural Beats, Brainwave Music for Studying](https://youtu.be/EFi-pxsKWzE)
 
 
 ## Sci-Fi movies and games ambience
