@@ -79,6 +79,7 @@ Chill music and ambient noises to study and work.
 - [Diablo Theme Tristram Music 10 HOURS](https://youtu.be/iFOfSlDCwYw)
 - [Creative Music vol 01 - Dwarves of the First Age](https://youtu.be/GNwv4cH-i5k)
 - [Ambient Space Music - Alien](https://youtu.be/u9a1EQS_9Wo)
+- [{LoL} Bilgewater event in-game music 1 HOUR](https://youtu.be/LzONfhz-1vo)
 
 
 ## Kinda "Radio Stations"
@@ -169,6 +170,7 @@ Mixes for background, various genres.
 - [Tibetan Music, Healing Music, Relaxation Music, Chakra, Relaxing Music for Stress Relief, ✿3193C](https://youtu.be/PszSx4HvKAA)
 - [Relaxing Hang Drum Mix | Positive energy | ♬089](https://youtu.be/t9hpS3HbpDc)
 - [Nordic Folk Music - Viking Storm | Viking, Germanic, Slavic](https://youtu.be/sCN9sWuNJkk)
+- [3 Hours of Dark & Powerful Viking Music | Raw & Primal Norse Mix](https://youtu.be/JuS6N5cW57o)
 
 ### Classic
 
