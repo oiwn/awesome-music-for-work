@@ -129,6 +129,7 @@ Mixes for background, various genres.
 - [Programming ▫️ Designing ▫️ Coding ▫️ Music 📈](https://youtu.be/dDI8jLlc5WE)
 - [CODING SESSION Music 🏙 #22](https://youtu.be/0uhwPOquByE)
 - [Interstellar | Beautiful Chillstep Mix](https://youtu.be/eLeIJtLebZk)
+- [Concentration Music - GATEWAY to the MIND ⚙️ #23](https://youtu.be/eCXDM1-dGNY)
 
 ### Synthwave/House/Techno (4x4)
 
