@@ -130,6 +130,7 @@ Mixes for background, various genres.
 - [CODING SESSION Music 🏙 #22](https://youtu.be/0uhwPOquByE)
 - [Interstellar | Beautiful Chillstep Mix](https://youtu.be/eLeIJtLebZk)
 - [Concentration Music - GATEWAY to the MIND ⚙️ #23](https://youtu.be/eCXDM1-dGNY)
+- [California Beach 80's - Lo-Fi House mix](https://youtu.be/wVVh-n3AWXo)
 
 ### Synthwave/House/Techno (4x4)
 
@@ -140,7 +141,7 @@ Mixes for background, various genres.
 - [LoFi House Mix 1988 | The Stoner House Edition by @Katarakt](https://youtu.be/mlUMgZGFCtw)
 - [Techno 2077 (Innovative / Futuristic Techno Mix With Fully Animated Dystopian Visuals)](https://youtu.be/DJWtrLhUxG8)
 - [Cyber Spirit — Future Garage Playlist — Soul Freedom Music](https://youtu.be/OlWomZbCW6I)
-- [California Beach 80's - Lo-Fi House mix](https://youtu.be/wVVh-n3AWXo)
+- [Programming Music - SPACE Edition 🌍 #10](https://youtu.be/FUV3BulYrJQ)
 
 ### Ambient
 
