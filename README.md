@@ -80,6 +80,7 @@ Chill music and ambient noises to study and work.
 - [Creative Music vol 01 - Dwarves of the First Age](https://youtu.be/GNwv4cH-i5k)
 - [Ambient Space Music - Alien](https://youtu.be/u9a1EQS_9Wo)
 - [{LoL} Bilgewater event in-game music 1 HOUR](https://youtu.be/LzONfhz-1vo)
+- [Interstellar Official Soundtrack | Full Album – Hans Zimmer | WaterTower](https://youtu.be/YF1eYbfbH5k)
 
 
 ## Kinda "Radio Stations"
