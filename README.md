@@ -81,6 +81,7 @@ Chill music and ambient noises to study and work.
 - [Ambient Space Music - Alien](https://youtu.be/u9a1EQS_9Wo)
 - [{LoL} Bilgewater event in-game music 1 HOUR](https://youtu.be/LzONfhz-1vo)
 - [Interstellar Official Soundtrack | Full Album – Hans Zimmer | WaterTower](https://youtu.be/YF1eYbfbH5k)
+- [Stellaris - Full Original Soundtrack / OST](https://youtu.be/qjqsIENcFR0)
 
 
 ## Kinda "Radio Stations"
@@ -131,7 +132,7 @@ Mixes for background, various genres.
 - [CODING SESSION Music 🏙 #22](https://youtu.be/0uhwPOquByE)
 - [Interstellar | Beautiful Chillstep Mix](https://youtu.be/eLeIJtLebZk)
 - [Concentration Music - GATEWAY to the MIND ⚙️ #23](https://youtu.be/eCXDM1-dGNY)
-- [California Beach 80's - Lo-Fi House mix](https://youtu.be/wVVh-n3AWXo)
+- [Minimalist Chillstep — Deep Space Music — Future Mix](https://youtu.be/f2Q3pSV5XWA)
 
 ### Synthwave/House/Techno (4x4)
 
@@ -143,8 +144,9 @@ Mixes for background, various genres.
 - [Techno 2077 (Innovative / Futuristic Techno Mix With Fully Animated Dystopian Visuals)](https://youtu.be/DJWtrLhUxG8)
 - [Cyber Spirit — Future Garage Playlist — Soul Freedom Music](https://youtu.be/OlWomZbCW6I)
 - [Programming Music - SPACE Edition 🌍 #10](https://youtu.be/FUV3BulYrJQ)
+- [California Beach 80's - Lo-Fi House mix](https://youtu.be/wVVh-n3AWXo)
 
-### Ambient
+## Ambient
 
 - [8 Hours of Dark Ambient from Iron Cthulhu Apocalypse \(original music, not a curated mix\)](https://youtu.be/XBAsKplgkE4)
 - [Nuclear Winter \(Multiple Dark Ambient Hours\)](https://youtu.be/cRzQuPvLjdU)
