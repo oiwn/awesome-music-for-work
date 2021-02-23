@@ -145,6 +145,7 @@ Mixes for background, various genres.
 - [Cyber Spirit — Future Garage Playlist — Soul Freedom Music](https://youtu.be/OlWomZbCW6I)
 - [Programming Music - SPACE Edition 🌍 #10](https://youtu.be/FUV3BulYrJQ)
 - [California Beach 80's - Lo-Fi House mix](https://youtu.be/wVVh-n3AWXo)
+- [Dark Programming Music — Space Energy — Future Garage Mix](https://youtu.be/jQbgkcd2x7w)
 
 ## Ambient
 
