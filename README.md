@@ -134,6 +134,7 @@ Mixes for background, various genres.
 - [Concentration Music - GATEWAY to the MIND ⚙️ #23](https://youtu.be/eCXDM1-dGNY)
 - [Minimalist Chillstep — Deep Space Music — Future Mix](https://youtu.be/f2Q3pSV5XWA)
 - [Epic Chillstep Collection 2020 - 2 Hours](https://youtu.be/avxtVfwrNM8)
+- [Johnny Blue - Vitamin Sea (psybient)](https://youtu.be/mUUD-p-nJAE)
 
 ### Synthwave/House/Techno (4x4)
 
