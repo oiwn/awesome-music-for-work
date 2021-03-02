@@ -136,6 +136,7 @@ Mixes for background, various genres.
 - [Epic Chillstep Collection 2020 - 2 Hours](https://youtu.be/avxtVfwrNM8)
 - [Johnny Blue - Vitamin Sea (psybient)](https://youtu.be/mUUD-p-nJAE)
 - [Night Work | Beautiful Chill Mix](https://youtu.be/Xr8p17TKPc4)
+- [beautiful psychedelic chillout mix ( psychill / psybient ) HD](https://youtu.be/38WDfmIOjg8)
 
 ### Synthwave/House/Techno (4x4)
 
