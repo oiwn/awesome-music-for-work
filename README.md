@@ -135,6 +135,7 @@ Mixes for background, various genres.
 - [Minimalist Chillstep — Deep Space Music — Future Mix](https://youtu.be/f2Q3pSV5XWA)
 - [Epic Chillstep Collection 2020 - 2 Hours](https://youtu.be/avxtVfwrNM8)
 - [Johnny Blue - Vitamin Sea (psybient)](https://youtu.be/mUUD-p-nJAE)
+- [Night Work | Beautiful Chill Mix](https://youtu.be/Xr8p17TKPc4)
 
 ### Synthwave/House/Techno (4x4)
 
@@ -148,6 +149,7 @@ Mixes for background, various genres.
 - [Programming Music - SPACE Edition 🌍 #10](https://youtu.be/FUV3BulYrJQ)
 - [California Beach 80's - Lo-Fi House mix](https://youtu.be/wVVh-n3AWXo)
 - [Dark Programming Music — Space Energy — Future Garage Mix](https://youtu.be/jQbgkcd2x7w)
+- ['Back To The 80's' | Marvel83' Edition | Best of Synthwave And Retro Electro Music Mix](https://youtu.be/0QKQlf8r7ls)
 
 ## Ambient
 
@@ -192,7 +194,7 @@ Mixes for background, various genres.
 - [Most Iconic Classical Music Masterpieces Everyone Knows in One Single Video](https://youtu.be/-7jjo8UICjQ)
 - [The Best of Chopin](https://youtu.be/Jn09UdSb3aA)
 - [Tchaikovsky & Rachmaninoff - Russian Classical Music](https://youtu.be/0-JmHwVMhWM)
-- [Russian Classical Music : Mussorgsky, Tchaikovsky, Rachmaninoff, Litvinovsky ...](https://youtu.be/dGxuLfj0uqU)
+- [Russian Classical Music : Mussorgsky, Tchaikovsky, Rachmaninoff, Litvinovsky](https://youtu.be/dGxuLfj0uqU)
 
 
 ### Blues & Jazz & etc
