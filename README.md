@@ -27,6 +27,7 @@ Chill music and ambient noises to study and work.
 - [8 Hours Nature Sounds-Waterfall-Relaxing Meditation W/O Birdsong-Calming-Water Falling Sound Effect](https://youtu.be/02NQkhbjALg)
 - [Relaxing Waterfall Sounds for Sleep | Fall Asleep & Stay Sleeping with Water White Noise | 10 Hours](https://youtu.be/HchoJcYNYlU)
 - [❄ Relaxing Sounds of an Oil platform in the Arctic Ocean with Wind, Water & Snow Falling Ambience](https://youtu.be/LHJiEJcP-mc)
+- [🌴 Tropical Beach Ambience on a Island in Thailand with Ocean Sounds For Relaxation & Holiday Feeling](https://youtu.be/DGIXT7ce3vQ)
 
 ## Ambience fiction
 
