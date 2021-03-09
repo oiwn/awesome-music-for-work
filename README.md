@@ -153,6 +153,7 @@ Mixes for background, various genres.
 - [California Beach 80's - Lo-Fi House mix](https://youtu.be/wVVh-n3AWXo)
 - [Dark Programming Music — Space Energy — Future Garage Mix](https://youtu.be/jQbgkcd2x7w)
 - ['Back To The 80's' | Marvel83' Edition | Best of Synthwave And Retro Electro Music Mix](https://youtu.be/0QKQlf8r7ls)
+- [Night Shift — Future Garage Music — Stay Alert](https://youtu.be/EsKVSU-Eqok)
 
 ## Ambient
 
@@ -161,7 +162,7 @@ Mixes for background, various genres.
 - [4 Hours of Ambient Study Music To Concentrate - Improve your Focus and Concentration](https://youtu.be/4GnVDPD01as)
 - [Relaxing Sleep Music: Deep Sleeping Music, Fall Asleep, Sweet Dreams, Insomnia ★68](https://youtu.be/MN_JP4gyBNI)
 - [Chillwave Ambient Fantasy Music - Beyond Atmospheric - Relaxing LOTR & Blade Runner Inspired Music](https://youtu.be/V89GXivoXPc)
-- [Lauge - Nothingness (Ambient) [Full Mixed Album]](https://youtu.be/uUE7ZiMcf94)
+- [Lauge - Nothingness (Ambient) (Full Mixed Album)](https://youtu.be/uUE7ZiMcf94)
 - ['Cyclical Space' Ambient Performance (DAW + Eurorack)](https://youtu.be/DD75XXVfCjo)
 - [Space Ambient Mix 53 - A Place Outside of Time by Dreamstate Logic](https://youtu.be/kb5stKvjRq0)
 
