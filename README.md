@@ -82,7 +82,8 @@ Chill music and ambient noises to study and work.
 - [Ambient Space Music - Alien](https://youtu.be/u9a1EQS_9Wo)
 - [{LoL} Bilgewater event in-game music 1 HOUR](https://youtu.be/LzONfhz-1vo)
 - [Interstellar Official Soundtrack | Full Album – Hans Zimmer | WaterTower](https://youtu.be/YF1eYbfbH5k)
-- [Stellaris - Full Original Soundtrack / OST](https://youtu.be/qjqsIENcFR0)
+- [Stellaris - Full Original Soundtrack OST](https://youtu.be/qjqsIENcFR0)
+- [Divinity: Original Sin II Soundtrack](https://youtu.be/WBI_cOPTzPU)
 
 
 ## Kinda "Radio Stations"
