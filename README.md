@@ -89,6 +89,7 @@ Chill music and ambient noises to study and work.
 
 - [lofi hip hop radio - beats to relax/study to](https://youtu.be/5qap5aO4i9A)
 - [Coding in Chicago | 🎧 LoFi Jazz Hip-Hop Code - Relax - Study](https://youtu.be/esX7SFtEjHg)
+- [Rainy Jazz: Relaxing Jazz & Bossa Nova Music Radio - 24/7 Chill Out Piano & Guitar Music](https://youtu.be/DSGyEsJ17cI)
 
 
 ## Mixes
