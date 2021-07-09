@@ -50,6 +50,7 @@ Chill music and ambient noises to study and work.
 - [Ghost in the Shell Nightstalker - 10 hours](https://youtu.be/vXcDTVqEWSg)
 - [Music for Deep Focus and Concentration with Binaural Beats, Brainwave Music for Studying](https://youtu.be/EFi-pxsKWzE)
 - [SAMURAI VILLAGE - 10 HOURS - HANS ZIMMER - JAPANESE MUSIC RAIN MEDITATION - ASMR - 4K](https://youtu.be/bme--MrE8qA)
+- [Templars singing in the rain - Salve Regina, Crucem Sanctam Subiit, Benedicat nos Deus](https://youtu.be/zodHltkgK1w)
 
 
 ## Sci-Fi movies and games ambience
@@ -62,6 +63,7 @@ Chill music and ambient noises to study and work.
 - [Spaceship Ambience Sounds ASMR Star Wars White Noise Sleep](https://youtu.be/Iv368LFjG7U)
 - [Star Trek: TNG Bridge Background Ambience (no conversations) *1 HOUR*](https://youtu.be/dLrfdcz8Ou4)
 - [Star Trek: TNG Warp Core + Ambient Engine Noise for 12 Hours](https://youtu.be/aRk-DQUUlz8)
+- [Assassin's Creed Ambience- The Most Beautiful music from AC 1 to AC: Odyssey](https://youtu.be/9QvRjjNzRMQ)
 
 ## Games and movies OSTs
 
@@ -92,6 +94,7 @@ Chill music and ambient noises to study and work.
 - [lofi hip hop radio - beats to relax/study to](https://youtu.be/5qap5aO4i9A)
 - [Coding in Chicago | 🎧 LoFi Jazz Hip-Hop Code - Relax - Study](https://youtu.be/esX7SFtEjHg)
 - [Rainy Jazz: Relaxing Jazz & Bossa Nova Music Radio - 24/7 Chill Out Piano & Guitar Music](https://youtu.be/DSGyEsJ17cI)
+- [Inspiration Chill Music Radio — Deep Future Garage — Live 24/7](https://youtu.be/xLk9ZaguQVc)
 
 
 ## Mixes
