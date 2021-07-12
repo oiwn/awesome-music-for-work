@@ -87,6 +87,7 @@ Chill music and ambient noises to study and work.
 - [Interstellar Official Soundtrack | Full Album – Hans Zimmer | WaterTower](https://youtu.be/YF1eYbfbH5k)
 - [Stellaris - Full Original Soundtrack OST](https://youtu.be/qjqsIENcFR0)
 - [Divinity: Original Sin II Soundtrack](https://youtu.be/WBI_cOPTzPU)
+- [The Witcher 3 Wild Hunt & DLC | Full Soundtrack](https://youtu.be/ZD5KuJWNLeE)
 
 
 ## Kinda "Radio Stations"
