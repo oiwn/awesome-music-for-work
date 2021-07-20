@@ -88,6 +88,7 @@ Chill music and ambient noises to study and work.
 - [Stellaris - Full Original Soundtrack OST](https://youtu.be/qjqsIENcFR0)
 - [Divinity: Original Sin II Soundtrack](https://youtu.be/WBI_cOPTzPU)
 - [The Witcher 3 Wild Hunt & DLC | Full Soundtrack](https://youtu.be/ZD5KuJWNLeE)
+- [Frostpunk (2018) - Complete Soundtrack OST + Tracklist](https://youtu.be/WtzOHYi3CIk)
 
 
 ## Kinda "Radio Stations"
@@ -96,6 +97,7 @@ Chill music and ambient noises to study and work.
 - [Coding in Chicago | 🎧 LoFi Jazz Hip-Hop Code - Relax - Study](https://youtu.be/esX7SFtEjHg)
 - [Rainy Jazz: Relaxing Jazz & Bossa Nova Music Radio - 24/7 Chill Out Piano & Guitar Music](https://youtu.be/DSGyEsJ17cI)
 - [Inspiration Chill Music Radio — Deep Future Garage — Live 24/7](https://youtu.be/xLk9ZaguQVc)
+- [Cafe De Anatolia • 24/7 Live Radio • Ethno World | Oriental Radio | Best Ethnic Deep House Music](https://youtu.be/fHm8xdJZARk)
 
 
 ## Mixes
