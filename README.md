@@ -89,6 +89,8 @@ Chill music and ambient noises to study and work.
 - [Divinity: Original Sin II Soundtrack](https://youtu.be/WBI_cOPTzPU)
 - [The Witcher 3 Wild Hunt & DLC | Full Soundtrack](https://youtu.be/ZD5KuJWNLeE)
 - [Frostpunk (2018) - Complete Soundtrack OST + Tracklist](https://youtu.be/WtzOHYi3CIk)
+- [RimWorld OST ◆ Full Soundtrack ◆ HD Music](https://youtu.be/TXQBHblSCIc)
+- [Rimworld Royalty complete OST 4k - Alistair Lindsay](https://youtu.be/PG-phyoElKU)
 
 
 ## Kinda "Radio Stations"
