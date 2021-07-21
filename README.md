@@ -178,6 +178,8 @@ Mixes for background, various genres.
 - ['Cyclical Space' Ambient Performance (DAW + Eurorack)](https://youtu.be/DD75XXVfCjo)
 - [Space Ambient Mix 53 - A Place Outside of Time by Dreamstate Logic](https://youtu.be/kb5stKvjRq0)
 - [Songs for Dead Planets](https://youtu.be/7aDpCIDYDc8)
+- [Deep Focus Music To Improve Concentration - 12 Hours of Ambient Study Music to Concentrate #52](https://youtu.be/KGQbIBIxjHk)
+- [Work in Peace | Beautiful Chill Mix](https://youtu.be/XWGXimIJhGg)
 
 ### Modular / Generative Music
 
