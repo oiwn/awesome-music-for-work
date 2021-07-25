@@ -130,6 +130,7 @@ Mixes for background, various genres.
 - [COSMIC RELAXATION: 8 HOURS of 4K Deep Space NASA Footage + Chillout Music for Studying, Working, Etc](https://youtu.be/Y_plhk1FUQA)
 - [Productive Music For Work | Chill Playlist](https://youtu.be/ZVb_yKMivqo)
 - [Touch of Katana ⛩️ Japanese Lofi Hip-Hop](https://youtu.be/blnJvW3EhWA)
+- [Beautiful Asian Music - Koto Music, Relaxing Music, Hotchiku. Sleep Music, Meditation | 3 Hours](https://youtu.be/S_uD_BqC2gg)
 
 ### Psybient, Psychill etc.
 
