@@ -120,7 +120,7 @@ Mixes for background, various genres.
 - [Dub Techno Session #3](https://youtu.be/LABVnXwuAg8)
 - [Night Sounds 36 Dub Techno (TRACKLIST)](https://youtu.be/nKvv_lmXzwQ)
 
-### Chill & Lowfi & etc
+### Downtempo & Chill & Lowfi & etc
 
 - [Programming ▫️ Designing ▫️ Hacking ▫️ Coding ▫️ Focus ▫️ Music 🧬](https://youtu.be/hGIW2fDb0jg)
 - [Chillstep Music for Programming / Cyber / Coding](https://youtu.be/M5QY2_8704o)
@@ -131,6 +131,7 @@ Mixes for background, various genres.
 - [Productive Music For Work | Chill Playlist](https://youtu.be/ZVb_yKMivqo)
 - [Touch of Katana ⛩️ Japanese Lofi Hip-Hop](https://youtu.be/blnJvW3EhWA)
 - [Beautiful Asian Music - Koto Music, Relaxing Music, Hotchiku. Sleep Music, Meditation | 3 Hours](https://youtu.be/S_uD_BqC2gg)
+- [Downtempo Bass Music for Creative People — Chillout Playlist](https://youtu.be/NZjzxAGffZY)
 
 ### Psybient, Psychill etc.
 
