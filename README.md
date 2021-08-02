@@ -113,6 +113,7 @@ Mixes for background, various genres.
 - [Spaceslug - Time Travel Dilemma (2017 | Full Album)](https://youtu.be/9QcMUyWa5pY)
 - [Psychedelic / Stoner / Desert Rock - Playlist 6 (REUPLOAD)](https://youtu.be/TKBoID6Ez0E)
 - [Yuri Gagarin - Yuri Gagarin (2014 remix, full album) (Space Rock / Psychedelic Rock)](https://youtu.be/eQ5ek6YQrSU)
+- [Polska Radio One - Cosmos Inside (Full Album)](https://youtu.be/9mEilg5ScIU)
 
 ### Dub Techno
 
