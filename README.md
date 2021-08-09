@@ -134,6 +134,7 @@ Mixes for background, various genres.
 - [Touch of Katana ⛩️ Japanese Lofi Hip-Hop](https://youtu.be/blnJvW3EhWA)
 - [Beautiful Asian Music - Koto Music, Relaxing Music, Hotchiku. Sleep Music, Meditation | 3 Hours](https://youtu.be/S_uD_BqC2gg)
 - [Downtempo Bass Music for Creative People — Chillout Playlist](https://youtu.be/NZjzxAGffZY)
+- [4 AM Coding Session - Lofi Hip Hop Mix (Study & Coding Beats)](https://youtu.be/fwfT6k5kD4s)
 
 ### Psybient, Psychill etc.
 
@@ -155,6 +156,7 @@ Mixes for background, various genres.
 - [Johnny Blue - Vitamin Sea (psybient)](https://youtu.be/mUUD-p-nJAE)
 - [Night Work | Beautiful Chill Mix](https://youtu.be/Xr8p17TKPc4)
 - [beautiful psychedelic chillout mix ( psychill / psybient ) HD](https://youtu.be/38WDfmIOjg8)
+- [Space Radio Station - Psybient, Psychill, Trance Mix](https://youtu.be/QkJrHeDYIn8)
 
 ### Synthwave/House/Techno (4x4)
 
@@ -171,6 +173,7 @@ Mixes for background, various genres.
 - ['Back To The 80's' | Marvel83' Edition | Best of Synthwave And Retro Electro Music Mix](https://youtu.be/0QKQlf8r7ls)
 - [Night Shift — Future Garage Music — Stay Alert](https://youtu.be/EsKVSU-Eqok)
 - [Sahalé - Djiin (6 hours)](https://youtu.be/nIsrrgF-xGE)
+- [Productive Music for Programmers, Creators, Designers — The Night Code](https://youtu.be/4pcNRDx6KrE)
 
 ## Ambient
 
