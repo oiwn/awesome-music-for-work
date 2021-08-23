@@ -91,6 +91,7 @@ Chill music and ambient noises to study and work.
 - [Frostpunk (2018) - Complete Soundtrack OST + Tracklist](https://youtu.be/WtzOHYi3CIk)
 - [RimWorld OST ◆ Full Soundtrack ◆ HD Music](https://youtu.be/TXQBHblSCIc)
 - [Rimworld Royalty complete OST 4k - Alistair Lindsay](https://youtu.be/PG-phyoElKU)
+- [Dune Official Soundtrack | Paul's Dream / Ripples in the Sand 1 Hour Loop – Hans Zimmer | WaterTower](https://youtu.be/J_ZeFaGu-MY)
 
 
 ## Kinda "Radio Stations"
@@ -215,6 +216,7 @@ Mixes for background, various genres.
 - [Relaxing Hang Drum Mix | Positive energy | ♬089](https://youtu.be/t9hpS3HbpDc)
 - [Nordic Folk Music - Viking Storm | Viking, Germanic, Slavic](https://youtu.be/sCN9sWuNJkk)
 - [3 Hours of Dark & Powerful Viking Music | Raw & Primal Norse Mix](https://youtu.be/JuS6N5cW57o)
+- [Hang Drum Music for Focus with Binaural Beats, Focus Music, Handpan Study Music](https://youtu.be/v23fBC70hR0)
 
 ### Classic
 
