@@ -92,6 +92,7 @@ Chill music and ambient noises to study and work.
 - [RimWorld OST ◆ Full Soundtrack ◆ HD Music](https://youtu.be/TXQBHblSCIc)
 - [Rimworld Royalty complete OST 4k - Alistair Lindsay](https://youtu.be/PG-phyoElKU)
 - [Dune Official Soundtrack | Paul's Dream / Ripples in the Sand 1 Hour Loop – Hans Zimmer | WaterTower](https://youtu.be/J_ZeFaGu-MY)
+- [Tropico 1 Soundtrack - All 40 songs](https://youtu.be/07m3aXx4Wto)
 
 
 ## Kinda "Radio Stations"
