@@ -190,6 +190,7 @@ Mixes for background, various genres.
 - [Songs for Dead Planets](https://youtu.be/7aDpCIDYDc8)
 - [Deep Focus Music To Improve Concentration - 12 Hours of Ambient Study Music to Concentrate #52](https://youtu.be/KGQbIBIxjHk)
 - [Work in Peace | Beautiful Chill Mix](https://youtu.be/XWGXimIJhGg)
+- [Iceland | Ambient Study Music](https://youtu.be/3glMy7Q0m7g)
 
 ### Modular / Generative Music
 
