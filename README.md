@@ -51,7 +51,7 @@ Chill music and ambient noises to study and work.
 - [Music for Deep Focus and Concentration with Binaural Beats, Brainwave Music for Studying](https://youtu.be/EFi-pxsKWzE)
 - [SAMURAI VILLAGE - 10 HOURS - HANS ZIMMER - JAPANESE MUSIC RAIN MEDITATION - ASMR - 4K](https://youtu.be/bme--MrE8qA)
 - [Templars singing in the rain - Salve Regina, Crucem Sanctam Subiit, Benedicat nos Deus](https://youtu.be/zodHltkgK1w)
-
+- [Rainy day in the Greenhouse ◈ Cottage Core Aesthetic ASMR Ambience ◈ Nature Sounds ◈ Soft Music](https://youtu.be/zJW0NG6BYkY)
 
 ## Sci-Fi movies and games ambience
 
