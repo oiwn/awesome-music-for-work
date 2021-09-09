@@ -138,6 +138,7 @@ Mixes for background, various genres.
 - [Downtempo Bass Music for Creative People — Chillout Playlist](https://youtu.be/NZjzxAGffZY)
 - [4 AM Coding Session - Lofi Hip Hop Mix (Study & Coding Beats)](https://youtu.be/fwfT6k5kD4s)
 - [Programming / Coding / Hacking music vol.25 (TABNINE)](https://youtu.be/CkkNl4gfXXI)
+- [Virtual Coding Session - Lofi Hip Hop Mix "Study & Coding Beats"](https://youtu.be/XIJQZ4FZAYE)
 
 ### Psybient, Psychill etc.
 
