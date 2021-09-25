@@ -8,7 +8,8 @@ Chill music and ambient noises to study and work.
 - [`Ambience fiction`](#ambience-fiction)
 - [`Ambience and music`](#ambience-and-music)
 - [`Sci-Fi movies and games ambience`](#sci-fi-movies-and-games-ambience)
-- [`Games and movies OSTs`](#games-and-movies-osts)
+- [`Games OSTs`](#games-osts)
+- [`Movies OSTs`](#movies-osts)
 - [`Kinda "Radio Stations"`](#kinda-radio-stations)
 - [`Mixes`](#mixes)
 
@@ -65,7 +66,7 @@ Chill music and ambient noises to study and work.
 - [Star Trek: TNG Warp Core + Ambient Engine Noise for 12 Hours](https://youtu.be/aRk-DQUUlz8)
 - [Assassin's Creed Ambience- The Most Beautiful music from AC 1 to AC: Odyssey](https://youtu.be/9QvRjjNzRMQ)
 
-## Games and movies OSTs
+## Games OSTs
 
 - [Skyrim Exploration Suite](https://youtu.be/xWtfo9kuRTU)
 - [Shadowrun Returns: Hong Kong OST](https://youtu.be/2OqqbesJ-Ks)
@@ -76,25 +77,29 @@ Chill music and ambient noises to study and work.
 - [Ori and the Will of the Wisps: FULL Original Soundtrack (60 songs) - Gareth Coker](https://youtu.be/eCbyqm9jcBA)
 - [Relaxing Zelda Breath of the Wild Music + Night Ambience Sound ~ Vapidbobcat](https://youtu.be/YGaGVajkUjE)
 - [Moria | Lord of the Rings Music & Ambience - Dwarven Music with Cavern Ambience](https://youtu.be/Or2QHt7BEgI)
-- [3 hours of Prophecy Theme from DUNE (1984) Soundtrack, Relaxing Sleep Sound](https://youtu.be/3qsUvCmA7PI)
-- [Stargate (the Movie) Official Soundtrack (1994)](https://youtu.be/QZ6hQW-tfmU)
-- [Vangelis - Blade Runner Soundtrack (Remastered 2017)](https://youtu.be/k3fz6CC45ok)
 - [Alien: Isolation | Full Soundtrack](https://youtu.be/URG11U69KS8)
 - [Diablo Theme Tristram Music 10 HOURS](https://youtu.be/iFOfSlDCwYw)
 - [Creative Music vol 01 - Dwarves of the First Age](https://youtu.be/GNwv4cH-i5k)
-- [Ambient Space Music - Alien](https://youtu.be/u9a1EQS_9Wo)
 - [{LoL} Bilgewater event in-game music 1 HOUR](https://youtu.be/LzONfhz-1vo)
-- [Interstellar Official Soundtrack | Full Album – Hans Zimmer | WaterTower](https://youtu.be/YF1eYbfbH5k)
 - [Stellaris - Full Original Soundtrack OST](https://youtu.be/qjqsIENcFR0)
 - [Divinity: Original Sin II Soundtrack](https://youtu.be/WBI_cOPTzPU)
 - [The Witcher 3 Wild Hunt & DLC | Full Soundtrack](https://youtu.be/ZD5KuJWNLeE)
 - [Frostpunk (2018) - Complete Soundtrack OST + Tracklist](https://youtu.be/WtzOHYi3CIk)
 - [RimWorld OST ◆ Full Soundtrack ◆ HD Music](https://youtu.be/TXQBHblSCIc)
 - [Rimworld Royalty complete OST 4k - Alistair Lindsay](https://youtu.be/PG-phyoElKU)
-- [Dune Official Soundtrack | Paul's Dream / Ripples in the Sand 1 Hour Loop – Hans Zimmer | WaterTower](https://youtu.be/J_ZeFaGu-MY)
 - [Tropico 1 Soundtrack - All 40 songs](https://youtu.be/07m3aXx4Wto)
 - [Day R Survival OST - Official Soundtrack](https://youtu.be/_R921yMhg60)
+- [Pharaoh Soundtrack (Full)](https://youtu.be/MBypz1v5IPQ)
 
+## Movies OSTs
+
+- [3 hours of Prophecy Theme from DUNE (1984) Soundtrack, Relaxing Sleep Sound](https://youtu.be/3qsUvCmA7PI)
+- [Stargate (the Movie) Official Soundtrack (1994)](https://youtu.be/QZ6hQW-tfmU)
+- [Vangelis - Blade Runner Soundtrack (Remastered 2017)](https://youtu.be/k3fz6CC45ok)
+- [Ambient Space Music - Alien](https://youtu.be/u9a1EQS_9Wo)
+- [Interstellar Official Soundtrack | Full Album – Hans Zimmer | WaterTower](https://youtu.be/YF1eYbfbH5k)
+- [Dune Official Soundtrack | Paul's Dream / Ripples in the Sand 1 Hour Loop – Hans Zimmer | WaterTower](https://youtu.be/J_ZeFaGu-MY)
+- [DUNE Official Soundtrack | Full Album - Hans Zimmer | WaterTower](https://youtu.be/uTmBeR32GRA)
 
 ## Kinda "Radio Stations"
 
