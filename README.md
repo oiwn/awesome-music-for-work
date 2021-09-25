@@ -145,6 +145,7 @@ Mixes for background, various genres.
 - [4 AM Coding Session - Lofi Hip Hop Mix (Study & Coding Beats)](https://youtu.be/fwfT6k5kD4s)
 - [Programming / Coding / Hacking music vol.25 (TABNINE)](https://youtu.be/CkkNl4gfXXI)
 - [Virtual Coding Session - Lofi Hip Hop Mix "Study & Coding Beats"](https://youtu.be/XIJQZ4FZAYE)
+- [公式】NURO 光_作業用“高速” Lo-fi Hip Hop【BPM87〜220 作業追い込み用 Long ver.】](https://youtu.be/IGXeGVJw5V0)
 
 ### Psybient, Psychill etc.
 
