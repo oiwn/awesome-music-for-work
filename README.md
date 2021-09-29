@@ -54,18 +54,6 @@ Chill music and ambient noises to study and work.
 - [Templars singing in the rain - Salve Regina, Crucem Sanctam Subiit, Benedicat nos Deus](https://youtu.be/zodHltkgK1w)
 - [Rainy day in the Greenhouse ◈ Cottage Core Aesthetic ASMR Ambience ◈ Nature Sounds ◈ Soft Music](https://youtu.be/zJW0NG6BYkY)
 
-## Sci-Fi movies and games ambience
-
-- [10 HOURS | SPACESHIP NOSTROMO SOUNDS 🎧 For Studying | Relaxing | Sleeping \(ALIEN ISOLATION Ambience\)](https://youtu.be/Wckh13WthAw)
-- [Blade Runner Meditative Ambience](https://youtu.be/cuCqn07EOKk)
-- [Blade Runner Meditative Ambience with City Sounds](https://youtu.be/MyitVNMFApc)
-- [Jeremy Soule (Skyrim) — Tundra + "Winter Ambience" 1.5 Hrs.](https://youtu.be/x7BCa9Y8Of8)
-- [SUBNAUTICA - Full Soundtrack OST - By Simon Chylinski](https://youtu.be/aT9_-P7N950)
-- [Spaceship Ambience Sounds ASMR Star Wars White Noise Sleep](https://youtu.be/Iv368LFjG7U)
-- [Star Trek: TNG Bridge Background Ambience (no conversations) *1 HOUR*](https://youtu.be/dLrfdcz8Ou4)
-- [Star Trek: TNG Warp Core + Ambient Engine Noise for 12 Hours](https://youtu.be/aRk-DQUUlz8)
-- [Assassin's Creed Ambience- The Most Beautiful music from AC 1 to AC: Odyssey](https://youtu.be/9QvRjjNzRMQ)
-
 ## Games OSTs
 
 - [Skyrim Exploration Suite](https://youtu.be/xWtfo9kuRTU)
@@ -90,6 +78,9 @@ Chill music and ambient noises to study and work.
 - [Tropico 1 Soundtrack - All 40 songs](https://youtu.be/07m3aXx4Wto)
 - [Day R Survival OST - Official Soundtrack](https://youtu.be/_R921yMhg60)
 - [Pharaoh Soundtrack (Full)](https://youtu.be/MBypz1v5IPQ)
+- [Assassin's Creed Ambience- The Most Beautiful music from AC 1 to AC: Odyssey](https://youtu.be/9QvRjjNzRMQ)
+- [Jeremy Soule (Skyrim) — Tundra + "Winter Ambience" 1.5 Hrs.](https://youtu.be/x7BCa9Y8Of8)
+- [SUBNAUTICA - Full Soundtrack OST - By Simon Chylinski](https://youtu.be/aT9_-P7N950)
 
 ## Movies OSTs
 
@@ -100,6 +91,13 @@ Chill music and ambient noises to study and work.
 - [Interstellar Official Soundtrack | Full Album – Hans Zimmer | WaterTower](https://youtu.be/YF1eYbfbH5k)
 - [Dune Official Soundtrack | Paul's Dream / Ripples in the Sand 1 Hour Loop – Hans Zimmer | WaterTower](https://youtu.be/J_ZeFaGu-MY)
 - [DUNE Official Soundtrack | Full Album - Hans Zimmer | WaterTower](https://youtu.be/uTmBeR32GRA)
+- [Mr. Robot – calm and relaxing music from Season 3 and 4 – Mac Quayle](https://youtu.be/QifY_BtOxR8)
+- [10 HOURS | SPACESHIP NOSTROMO SOUNDS 🎧 For Studying | Relaxing | Sleeping \(ALIEN ISOLATION Ambience\)](https://youtu.be/Wckh13WthAw)
+- [Blade Runner Meditative Ambience](https://youtu.be/cuCqn07EOKk)
+- [Blade Runner Meditative Ambience with City Sounds](https://youtu.be/MyitVNMFApc)
+- [Spaceship Ambience Sounds ASMR Star Wars White Noise Sleep](https://youtu.be/Iv368LFjG7U)
+- [Star Trek: TNG Bridge Background Ambience (no conversations) *1 HOUR*](https://youtu.be/dLrfdcz8Ou4)
+- [Star Trek: TNG Warp Core + Ambient Engine Noise for 12 Hours](https://youtu.be/aRk-DQUUlz8)
 
 ## Kinda "Radio Stations"
 
@@ -145,7 +143,8 @@ Mixes for background, various genres.
 - [4 AM Coding Session - Lofi Hip Hop Mix (Study & Coding Beats)](https://youtu.be/fwfT6k5kD4s)
 - [Programming / Coding / Hacking music vol.25 (TABNINE)](https://youtu.be/CkkNl4gfXXI)
 - [Virtual Coding Session - Lofi Hip Hop Mix "Study & Coding Beats"](https://youtu.be/XIJQZ4FZAYE)
-- [公式】NURO 光_作業用“高速” Lo-fi Hip Hop【BPM87〜220 作業追い込み用 Long ver.】](https://youtu.be/IGXeGVJw5V0)
+- [公式 NURO 光_作業用“高速” Lo-fi Hip Hop【BPM87〜220 作業追い込み用 Long ver.】](https://youtu.be/IGXeGVJw5V0)
+- [Sounds of New Latam Beats (Mixed by Samaya) (Folktronica | Organica)](https://youtu.be/_EhiejzvAmo)
 
 ### Psybient, Psychill etc.
 
