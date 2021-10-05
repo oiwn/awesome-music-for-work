@@ -145,6 +145,7 @@ Mixes for background, various genres.
 - [Virtual Coding Session - Lofi Hip Hop Mix "Study & Coding Beats"](https://youtu.be/XIJQZ4FZAYE)
 - [公式 NURO 光_作業用“高速” Lo-fi Hip Hop【BPM87〜220 作業追い込み用 Long ver.】](https://youtu.be/IGXeGVJw5V0)
 - [Sounds of New Latam Beats (Mixed by Samaya) (Folktronica | Organica)](https://youtu.be/_EhiejzvAmo)
+- [Slow Dub Weed Slaken Music | Instrumnetal Non Stop Playlist](https://youtu.be/9QS9pVDERrY)
 
 ### Psybient, Psychill etc.
 
