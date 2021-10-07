@@ -106,6 +106,7 @@ Chill music and ambient noises to study and work.
 - [Rainy Jazz: Relaxing Jazz & Bossa Nova Music Radio - 24/7 Chill Out Piano & Guitar Music](https://youtu.be/DSGyEsJ17cI)
 - [Inspiration Chill Music Radio — Deep Future Garage — Live 24/7](https://youtu.be/xLk9ZaguQVc)
 - [Cafe De Anatolia • 24/7 Live Radio • Ethno World | Oriental Radio | Best Ethnic Deep House Music](https://youtu.be/fHm8xdJZARk)
+- [🎧Jazz Lounge - Calm & Relaxing Background Music | Study, Work, Sleep, Meditation🎧](https://youtu.be/5MbOumKS_Jo)
 
 
 ## Mixes
@@ -146,6 +147,9 @@ Mixes for background, various genres.
 - [公式 NURO 光_作業用“高速” Lo-fi Hip Hop【BPM87〜220 作業追い込み用 Long ver.】](https://youtu.be/IGXeGVJw5V0)
 - [Sounds of New Latam Beats (Mixed by Samaya) (Folktronica | Organica)](https://youtu.be/_EhiejzvAmo)
 - [Slow Dub Weed Slaken Music | Instrumnetal Non Stop Playlist](https://youtu.be/9QS9pVDERrY)
+- [Programming / Coding / Hacking music vol.10 (PEACEFUL MIND)](https://youtu.be/wTvkT6Q_CwI)
+- [ZETSU ☯︎ Japanese Lofi HipHop Mix](https://youtu.be/qSzqh-VwpM8)
+- [Programming ▫️ Designing ▫️ Coding ▫️ Music 📈](https://youtu.be/TXm9C7UCWT4)
 
 ### Psybient, Psychill etc.
 
