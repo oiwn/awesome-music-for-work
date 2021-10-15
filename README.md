@@ -41,6 +41,7 @@ Chill music and ambient noises to study and work.
 - [ASMR Blade Runner Balcony Cyberpunk City Rain Sound Ambience 7 Hours 4K - Corona Quarantaine Survival](https://youtu.be/x5zX1eRKEDM)
 - [ASMR Cyberpunk Future City Hacker Room Sound Ambience 7 Hours 4K - Corona Quarantaine Survival](https://youtu.be/yp7Mqp-X2wk)
 - [Nostromo Ambient Engine Noise ( Ship from Alien for 6 Hours )](https://youtu.be/_AmQbNItyko)
+- [Haunted Village Halloween Ambience 🦇 3 Hours of Relaxing Spooky and Fall Nature Sounds, White Noise](https://youtu.be/10P52OzMwTc)
 
 
 ## Ambience and music
