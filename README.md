@@ -109,10 +109,13 @@ Chill music and ambient noises to study and work.
 - [Cafe De Anatolia • 24/7 Live Radio • Ethno World | Oriental Radio | Best Ethnic Deep House Music](https://youtu.be/fHm8xdJZARk)
 - [🎧Jazz Lounge - Calm & Relaxing Background Music | Study, Work, Sleep, Meditation🎧](https://youtu.be/5MbOumKS_Jo)
 
-
 ## Mixes
 
 Mixes for background, various genres.
+
+- [Dune | Epic Music & Ambience](https://youtu.be/hShxsAlJmfw)
+- [Hypermind Music — Limitless Productivity Playlist](https://youtu.be/4MFOBeUCPkw)
+- [Sands of Arrakis - An EPIC Ambient Music Journey - Inspired By The Movie DUNE (Vocals By Syberlilly)](https://youtu.be/F0Jk80wDw2w)
 
 ### Space Rock
 
