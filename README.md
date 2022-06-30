@@ -155,6 +155,7 @@ Mixes for background, various genres.
 - [Programming / Coding / Hacking music vol.10 (PEACEFUL MIND)](https://youtu.be/wTvkT6Q_CwI)
 - [ZETSU ☯︎ Japanese Lofi HipHop Mix](https://youtu.be/qSzqh-VwpM8)
 - [Programming ▫️ Designing ▫️ Coding ▫️ Music 📈](https://youtu.be/TXm9C7UCWT4)
+- [BaliDacha Shamanic DJset 27.11.19 | Electronic | Ethno | Chillrave | Downtempo | Deep House | DJmix](https://youtu.be/a5pZ255CMAc)
 
 ### Psybient, Psychill etc.
 
